@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Akinify
-- 👀 I’m interested in Graphic Design, Video editing, Data Analitics, Writing and Reasearch
+- 👀 I’m interested in Graphic Design, Video editing, Data Analytics, Writing and Research
 - 🌱 I’m currently learning Poject Management with Coursera
 - 💞️ I’m looking to collaborate on Poject Management and Video creation
 - 📫 How to reach me chat me up
